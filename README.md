@@ -1,2 +1,0 @@
-# SonictheHedgehog-Animation
-SonictheHedgehog Animation
